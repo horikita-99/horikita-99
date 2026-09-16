@@ -1,4 +1,4 @@
-# Hi I am Harshiddhi Pathak
+# Hi, I am Harshiddhi Pathak
 
 I am a PhD Researcher at the Indian Institute of Technology Gandhinagar.
 
